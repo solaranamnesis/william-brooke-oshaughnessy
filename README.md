@@ -2,7 +2,7 @@
 
 Public Domain Works of William Brooke O'Shaughnessy (1809-1889).
 
-## On the preparations of the Indian hemp, or gunjah, (Cannabis Indica).
+## On the Preparations of the Indian Hemp, or Gunjah, (Cannabis Indica).
 
 English - Plain Text  
 English - PDF | Biolinum | Atkinson | Coelacanth | Auriocus | Kerkis | Artemisia | Custom  
