@@ -38,7 +38,7 @@ In the historical and statistical department of the subject, I owe my cordial th
 
 # Section 1. Botanical characters --- Chemical Properties --- Production.
 
-[Drawing of _Cannabis indica_.](https://cdn.solaranamnesis.com/OShaughnessy/Cannabis-01.png)
+[Drawing of _Cannabis indica_ copied by my accomplished friend Dr. George Wallich, from Roxburgh's unpublished plate.](https://cdn.solaranamnesis.com/OShaughnessy/Cannabis-01.png)
 
 Botanical Description. --- Assuming with Lindley and other eminent writers that the _Cannabis sativa_ and _Indica_ are identical, we find that the plant is diœcious, annual, about three feet high, covered over with a fine pubescence; the stem is erect, branched, bright green, angular; leaves, alternate or opposite, on long weak petioles; digitate, scabrous, with linear, lanceolate, sharply serrated leaflets, tapering into a long smooth entire point; stipules subulate; clusters of flowers axillary with subulate bractes; males lax and drooping, branched and leafless at base; females erect, simple and leafy at the base. ♂ Calyx downy, five parted, imbricated. Stamens five; anthers large and pendulous. ♀ Calyx covered with brown glands. Ovary roundish with pendulous ovule, and two long filiform glandular stigmas; achenium ovate, one seeded. --- _v. Lindley's Flora Medica, p._ 299.*
 
