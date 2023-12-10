@@ -14,6 +14,20 @@
 
 ---
 
+# [Section 1. Botanical characters --- Chemical Properties --- Production.]()
+
+# [Section 2. Popular uses.]()
+
+# [Section 3. Historical details --- Notices of Hemp, and its popular uses, by the Sanskrit, Arabic, and Persian writers.]()
+
+# [Section 4. Medicinal properties assigned to Hemp by the ancient Arabian and Persian writers, and by modern European authors.]()
+
+# [Section 5. Experiments by the author --- inferences as to the action of the drug on animals and man.]()
+
+# [Postscript.]()
+
+---
+
 The narcotic effects of Hemp are popularly known in the south of Africa, South America, Turkey, Egypt, Asia Minor, India, and the adjacent territories of the Malays, Burmese, and Siamese. In all these countries Hemp is used in various forms, by the dissipated and depraved, as the ready agent of a pleasing intoxication. In the popular medicine of these nations, we find it extensively employed for a multitude of affections. But in western Europe its use either as a stimulant or as a remedy, is equally unknown. With the exception of the trial, as a frolic, of the Egyptian "Hasheesh," by a few youths in Marseilles, and of the clinical use of the wine of Hemp by Hahneman, as shown in a subsequent extract, I have been unable to trace any notice of the employment of this drug in Europe.
 
 Much difference of opinion exists on the question, whether the Hemp so abundant in Europe, even in high northern latitudes, is identical in specific characters with the Hemp of Asia Minor and India. The extraordinary symptoms produced by the latter depend on a resinous secretion with which it abounds, and which seems totally absent in the European kind. The closest physical resemblance or even identity exists between both plants;--- difference of climate seems to me more than sufficient to account for the absence of the resinous secretion, and consequent want of narcotic power in that indigenous in colder countries.
