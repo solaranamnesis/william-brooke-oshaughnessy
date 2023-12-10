@@ -14,17 +14,17 @@
 
 ---
 
-# [Section 1. Botanical characters --- Chemical Properties --- Production.]()
+# [Section 1. Botanical characters --- Chemical Properties --- Production.](#section-1-botanical-characters-----chemical-properties-----production-1)
 
-# [Section 2. Popular uses.]()
+# [Section 2. Popular uses.](#section-2-popular-uses-1)
 
-# [Section 3. Historical details --- Notices of Hemp, and its popular uses, by the Sanskrit, Arabic, and Persian writers.]()
+# [Section 3. Historical details --- Notices of Hemp, and its popular uses, by the Sanskrit, Arabic, and Persian writers.](#section-3-historical-details-----notices-of-hemp-and-its-popular-uses-by-the-sanskrit-arabic-and-persian-writers-1)
 
-# [Section 4. Medicinal properties assigned to Hemp by the ancient Arabian and Persian writers, and by modern European authors.]()
+# [Section 4. Medicinal properties assigned to Hemp by the ancient Arabian and Persian writers, and by modern European authors.](#section-4-medicinal-properties-assigned-to-hemp-by-the-ancient-arabian-and-persian-writers-and-by-modern-european-authors-1)
 
-# [Section 5. Experiments by the author --- inferences as to the action of the drug on animals and man.]()
+# [Section 5. Experiments by the author --- inferences as to the action of the drug on animals and man.](#section-5-experiments-by-the-author-----inferences-as-to-the-action-of-the-drug-on-animals-and-man-1)
 
-# [Postscript.]()
+# [Postscript.](#postscript-1)
 
 ---
 
